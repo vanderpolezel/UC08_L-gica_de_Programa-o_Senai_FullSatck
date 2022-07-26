@@ -1,0 +1,1 @@
+# UC08_L-gica_de_Programa-o_Senai_FullSatck
